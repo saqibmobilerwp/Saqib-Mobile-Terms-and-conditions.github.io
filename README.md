@@ -1,4 +1,3 @@
-# Saqib-Mobile-Terms-and-conditions
 Saqib Mobile: Terms & Conditions
 Agreement to Terms
 By creating an account, you agree to these rules. If you do not agree, you cannot use the app.
